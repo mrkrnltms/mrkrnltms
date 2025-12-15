@@ -15,5 +15,5 @@
 - Strengthening programming and problem-solving skills
   
 ## 🌐 Socials
--  Facebook:https: https://www.facebook.com/mark.tomas.94801
--  Instagram:https: https://www.instagram.com/mkrltms/?igsh=MXV1cmFxcTc4b3h3cQ%3D%3D#
+-  Facebook: https://www.facebook.com/mark.tomas.94801
+-  Instagram: https://www.instagram.com/mkrltms/?igsh=MXV1cmFxcTc4b3h3cQ%3D%3D#
